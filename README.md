@@ -1,5 +1,3 @@
-# seinndrxx.github.io
-
 ## **⊹ BANANA FISH ⊹** 
 
 Banana Fish is a Japanese manga series written and illustrated by Akimi Yoshida. It was originally serialized from May 1985 to April 1994 in Bessatsu Shōjo Comic, a manga magazine publishing shōjo manga. 
@@ -10,9 +8,11 @@ Banana Fish is a Japanese manga series written and illustrated by Akimi Yoshida.
 
 Banana Fish is set in the United States in the mid-1980s, primarily in New York City. Seventeen-year-old street gang leader Ash Lynx cares for his older brother Griffin, a Vietnam War veteran who has been in a vegetative state since a combat incident in which he fired on his own squadron and uttered the words "banana fish". One night, Ash witnesses two of his gang members kill a man who instructs Ash to "seek banana fish" before dying. The two gang members tell Ash they were acting on orders from Dino Golzine, the head of the Corsican mafia in New York; Ash was formerly an enforcer and child sex slave to Golzine, having been groomed from a young age to become the eventual heir to his criminal enterprise. 
 
+
 ***˚. ✦.˳·˖✶ ⋆.✧̣̇˚.  The basis and meaning of the story***
 
 The Banana Fish symbolizes greed. This was pretty obvious in the story. However, the analysis implies Salinger was using the bananafish story to suggest “that people fatten themselves with materialism”. Hmm… The bananafish may also symbolize emotions or the emotional pain felt by Seymour 
+
 
 ***₊˚ʚ ᗢ₊˚✧ ﾟ. Some of the Important Characters***
 
@@ -20,12 +20,12 @@ The Banana Fish symbolizes greed. This was pretty obvious in the story. However,
 
 ![alt text](https://i.pinimg.com/1200x/c3/f0/96/c3f0960b0c36f90ba0837d7437289eab.jpg) 
 
+
 ***♡₊˚ 🦢・₊✧ Additional Information about the Anime***
 
 The visual and narrative style of Banana Fish, characterized by realist artwork and action-oriented storytelling, represented a significant break from then-established shōjo manga conventions of highly stylized illustration and romantic fantasy-focused stories. Banana Fish was acclaimed by critics, who offered praise for the series' plot, dialogue, and action scenes. It is Yoshida's most commercially successful work, with over 12 million copies of collected volumes of the series in circulation as of 2018. 
 
-Banana Fish began serialization in the May 1985 issue of the manga magazine Bessatsu Shōjo Comic, a monthly supplement to the manga magazine Shōjo Comic, where it ran until its conclusion in the April 1994 issue.[11][12] The total length of the series is roughly 3,400 pages.[12] Bessatsu Shōjo Comic publisher Shogakukan also published Banana Fish as nineteen collected volumes under its Flower Comics imprint. 
+Banana Fish began serialization in the May 1985 issue of the manga magazine Bessatsu Shōjo Comic, a monthly supplement to the manga magazine Shōjo Comic, where it ran until its conclusion in the April 1994 issue.[11][12] The total length of the series is roughly 3,400 pages.[12] Bessatsu Shōjo Comic publisher Shogakukan also published Banana Fish as nineteen collected volumes under its Flower Comics imprint.  
 
-🎸⋆⭒˚｡⋆ Banana Fish's Soundtrack 
 
-[](https://open.spotify.com/artist/6DNp21IM2bQYeoddj9smnB?si=4UuZCwUxRDu7rarWrTRVwA)
+[***🎸⋆⭒˚｡⋆ Banana Fish's Soundtrack***](https://open.spotify.com/artist/6DNp21IM2bQYeoddj9smnB?si=4UuZCwUxRDu7rarWrTRVwA)
